@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Dr.Ali
+- 👀 I’m interested in ⚽Football , computer💻
+- 🎓 I’m currently learning English
